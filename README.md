@@ -1,1 +1,1 @@
-# chocolate-cookie-receipe
+# chocolate-chip-receipe
